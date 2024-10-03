@@ -1,0 +1,1 @@
+Kone clone web page
